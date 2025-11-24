@@ -11,3 +11,5 @@ https://drive.google.com/drive/folders/1emEWL6FCElNp6UpXXdPnLKClGaXT6XmBbAYo4p18
 [24/11, 08.18] Majid Junior (Kemenag): https://forms.gle/CBVqRMX2NNuNutqAA  (XI A,B,C)
 
 https://forms.gle/a3oqrVhtfoS6qpee8
+
+https://forms.gle/GQLUbP2uHC9txw268 (XI D,E,F
