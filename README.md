@@ -19,3 +19,9 @@ https://forms.gle/GQLUbP2uHC9txw268 (XI D,E,F
 [24/11, 09.09] +62 853-2293-8408: https://forms.gle/E2dpCT6wfHAcvcmx5  (KLs XI A-C)
 [24/11, 09.09] +62 853-2293-8408: https://forms.gle/GGJdEVCfYYFfgicY8 (Kls XI D-F)
 [24/11, 09.10] +62 853-2293-8408: https://forms.gle/gxEGYVCVAuwEeyRM8 (Kls XII A-F)
+
+# Ujian ke 3
+[24/11, 10.51] +62 853-2293-8408: https://forms.gle/SHEp4czfKAThqWE1A (X A-F)
+[24/11, 10.52] +62 853-2293-8408: https://forms.gle/kuhSM5hYUCcR9J8X7 (XI A-F)
+[24/11, 10.52] +62 853-2293-8408: http://bit.ly/3G5z5NL (XII A-F) tokennya; akidah
+
