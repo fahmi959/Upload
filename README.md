@@ -13,3 +13,9 @@ https://drive.google.com/drive/folders/1emEWL6FCElNp6UpXXdPnLKClGaXT6XmBbAYo4p18
 https://forms.gle/a3oqrVhtfoS6qpee8
 
 https://forms.gle/GQLUbP2uHC9txw268 (XI D,E,F
+
+# JAM KE 2
+[24/11, 09.08] +62 853-2293-8408: https://forms.gle/V1MjbgXyncEogDzM6  (Kls X A-F)
+[24/11, 09.09] +62 853-2293-8408: https://forms.gle/E2dpCT6wfHAcvcmx5  (KLs XI A-C)
+[24/11, 09.09] +62 853-2293-8408: https://forms.gle/GGJdEVCfYYFfgicY8 (Kls XI D-F)
+[24/11, 09.10] +62 853-2293-8408: https://forms.gle/gxEGYVCVAuwEeyRM8 (Kls XII A-F)
